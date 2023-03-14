@@ -1,4 +1,4 @@
-# Opeb Education
+# Open Education
 
 Nosso foco é no **open education** para a democratização do ensino de tecnologia e na aplicação da aprendizagem por projetos para atingir a eficácia. *O funil da aprendizagem em programação está nas pessoas*, faltam pessoas formadoras, engajadas e incentivadas.
 
