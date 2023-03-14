@@ -22,3 +22,6 @@ Operacionalmente, o método tinha início na escolha, feita por um grupo de alfa
 
 
 https://www.instagram.com/p/CUA1hEvrk0w/
+
+Infocria - educação tecnológica popular
+https://www.instagram.com/p/CRmoQS1pWZG/
